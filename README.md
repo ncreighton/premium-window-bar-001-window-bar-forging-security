@@ -1,0 +1,2 @@
+# premium-window-bar-001-window-bar-forging-security
+Stop losing custom window bar designs in scattered notes and folders—your craft deserves a dedicated forge for every project, from the first sketch to the final security grid.  This Notion template turns your chaotic workflow into a streamlined craft hub, organizing client specifications, material inventory, forging blueprints, and production timel
